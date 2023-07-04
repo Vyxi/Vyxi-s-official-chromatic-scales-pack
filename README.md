@@ -2,7 +2,7 @@
 You want to make song with the chromatic scales that i made? Sure, here you go bro. Don't forget to credit. The files are now .ogg instead of .wav to decrease the fle size
 * NOTE: Controversial people and characters might be mentioned. Please don't go to harass the mentioned people, as it will make the situations worse.
 # Characters and people origins
-# (VS V01D)
+# (VS V01D (Might rename))
 * V01D - Pony Town (OC) and Friday Night Funkin (Mod)
 * L1657 V01D - pretty much the same as V01D
 # (VS Apotheosis Hank)
@@ -26,8 +26,6 @@ Brobgonal - Dave and Bambi: Golden Apple 1.5
 * 47 girl - real life (Person), unknown (Meme)
 * Koi (OG version) - The Average Day at L'Stanberg (Cancelled series (Actual debut)) and Fuckin Funkin' with Koi (cancelled mod)
 * Koi (Nyx's version) - Utau music videos and Fuckin Funkin' with Koi Reboot (upcoming mod)
-* Kolalol - irl groomer
-* Dirteater098 - irl groomer
 * Love Heart - love.avi creepypasta
 * Love Monster - love.avi creepypasta
 * Love email address (Named as Loloa in the chromatic scale file name) - love.avi creepypasta
@@ -46,8 +44,6 @@ Brobgonal - Dave and Bambi: Golden Apple 1.5
 * Krinkels - creator, owner annd director of the Madness Combat series, made Hank
 * Mike EM - made Happiness Apotheosis and the Happy Hank character
 * AmorAltra - creator of his own self insert oc (I do not support him)
-* Kolalol - a pedo that i hate more than i hate Amor
-* Dirteater098 - another kidsushitoucher that i also hate
 * Animation Magic - creators of Link: The Faces of Evil and the Morshu character
 * ??? - 47 meme
 * Nikitos200 - creator of the love.avi creepypasta (Named as like.avi in 4stor)
